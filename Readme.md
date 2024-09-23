@@ -4,7 +4,7 @@
 
 ### 🕷️ Your Friendly Neighborhood Code Slinger
 
-- Just your average high school student by day, aspiring tech wizard by night. I'm on a journey to harness the power of code and bend it to my will (for good, of course... mostly 😉).
+- Just an average high school student by day, aspiring tech wizard by night. I'm on a journey to harness the power of code and bend it to my will (for good, of course... mostly 😉).
 
 
 ### 🚀 What I'm up to:
