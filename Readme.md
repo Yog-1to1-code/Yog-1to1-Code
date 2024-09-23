@@ -70,11 +70,3 @@ I'm just starting this wild coding adventure, armed with nothing but enthusiasm,
 
 Remember, with great code comes great responsibility... to have fun and make cool stuff! 🕸️🚀
 
-<img src="" alt="">
-
-
-
-## Find me around the web 🌎:
-
-- Sharing updates on <a href="https://www.linkedin.com/in/Yog-1to1">LinkedIn</a> 💼
-
