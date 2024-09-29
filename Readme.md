@@ -1,4 +1,4 @@
-# 👋 Hey there, I'm YOGesh!
+<h1 align="center">👋 Hey there, I'm YOG<i>esh!</i>😎</h1>
 
 <br>
 
