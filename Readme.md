@@ -56,9 +56,7 @@
 
 ### 🔗 Where to Find Me:
 
-- 🚫 Not on X (Twitter) - I'm too busy coding to tweet!
-
-- 🚫 Not on Instagram - My life's too exciting for filters!
+Dont find!
 
 - 🕸️ But somehow, someway, we're connected. Maybe it's the Spider-Verse? 🤔
 
